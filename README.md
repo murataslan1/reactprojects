@@ -4,7 +4,7 @@
 
 #### Support
 
-Find the Content Useful? [You can always buy me a coffee](https://www.buymeacoffee.com/murataslan1)
+Find the Content Useful? [You can always buy me a coffee](https://www.buymeacoffee.com/murataslan)
 
 
 #### All Projects
